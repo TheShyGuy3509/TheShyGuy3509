@@ -6,4 +6,4 @@
 
 
 i make minecraft java skins im selling the for $3 each if your interested contact my discord
-you can also contact my youtube the link is https://studio.youtube.com/channel/UCtQTJ0-eJXVJZFPLsI_M59g
+you can also contact my youtube the link is https://youtube.com/channel/UCtQTJ0-eJXVJZFPLsI_M59g
